@@ -11,7 +11,7 @@
 ## 📫 Contact Me  
 - [Email](mailto:h20ya05@gmail.com)  
 - [LinkedIn](https://www.linkedin.com/in/ha2005ya/)
-- - [GitHub](https://github.com/ha2005ya)  
+- [GitHub](https://github.com/ha2005ya)  
 
 ---
 
